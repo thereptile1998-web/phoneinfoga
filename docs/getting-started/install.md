@@ -118,4 +118,9 @@ All the output is sent to stdout, so it can be inspected by running:
 
 ```shell
 docker logs -f <container-id|container-name>
-```
+``` phonenumber 8109216703" track instgrame (all socail media) platform " if
+into red point and cc pluse 7011488826 add this number into ++ admin Oyerynoz"" 
+right shift    55 loop wheel (917) 75>" 55
+""""" wheel 54 "true open
+
+**open contol panel,, pin 115544
